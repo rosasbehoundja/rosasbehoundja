@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rosasbehoundja
 - 👀 I’m interested in AI apply for Africa
-- 🌱 Machine Learning - Deep Learning - Reinforcement Learning 
+- 🌱 Machine Learning - Deep Learning - Optimization Algorithms
 - 📫 How to reach me : perrierosas@gmail.com
 - 😄 Pronouns: he
 
