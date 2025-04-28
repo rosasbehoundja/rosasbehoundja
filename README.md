@@ -6,7 +6,8 @@
 
 Favorite quote:
 
->"They say I'm crazy. I say they haven't imagined what crazy can do."
+>"They call me crazy... but they haven't seen crazy yet. Let me teach them."
+
 
 👨🏾‍🍳Let's cook
 
