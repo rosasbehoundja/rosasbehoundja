@@ -4,12 +4,16 @@
 - 📫 How to reach me : perrierosas@gmail.com
 - 😄 Pronouns: he
 
-Favorite quote:
+Patrick is my favorite character :)
 
->"They call me crazy... but they haven't seen crazy yet. Let me teach them."
+Here is my favorite quote from him : 
+
+>"I WILL NEVER LET ME DOWN!"
+
+Check 100+ quotes from him [here](https://aigift.alibaba.com/quotes/patrick-star-quotes)
 
 
-👨🏾‍🍳Let's cook
+👨🏾‍🍳Let's cook now!
 
 
 <!---
